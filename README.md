@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Welzzyyy
+- 👀 I’m interested in economy, trading, investing, and crypto
+- 🌱 I’m currently learning english
+- 💞️ I’m looking to collaborate on anything, like being an ambassador for a project
